@@ -9,7 +9,7 @@
 ![](https://3.bp.blogspot.com/-v_gdYWMfwwQ/XqBDs8xdpOI/AAAAAAAAIMA/56hCycRjsk4NY5jKqz07UpBuLjH034-yACLcBGAsYHQ/s1600/Nurnama%2BIslam.png)
 ![](https://www.theprotik.com/wp-content/uploads/2019/09/PROTIK.jpeg)
 
-## PRSD Projects Development গ্রূপের উদ্দেশ:
+## Terms and Conditions:
 
 ## #1
 Long time পরিকল্পনা করে এই গ্রূপের সকল member কে add করা হয়েছে। ভার্সিটির একটা দুইটা ছোটোখাটো project করাই এই গ্রূপের একমাত্র উদ্দেশ্য না। তবে প্রয়োজনে আমরা **নিজেদের মধ্যে** ভার্সিটির ব্যাপারেও ডিসকাস করবো। 
