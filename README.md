@@ -6,8 +6,8 @@
 
 ![](https://1.bp.blogspot.com/-PUJ2aWGzVqI/XqBB_IX_ejI/AAAAAAAAILY/6vElF2NWXwcP8bCJ0FXTJ0qJs1CWIcP-gCLcBGAsYHQ/s320/suvo.jpg)
 ![](https://2.bp.blogspot.com/-tbPU2fPX7Xw/XqBCIWV_06I/AAAAAAAAILc/G7D9XrvB2FABAvnjOPuMSI5Qe30FXXDPQCLcBGAsYHQ/s320/rabby.jpg)
-![](https://3.bp.blogspot.com/-v_gdYWMfwwQ/XqBDs8xdpOI/AAAAAAAAIMA/56hCycRjsk4NY5jKqz07UpBuLjH034-yACLcBGAsYHQ/s1600/Nurnama%2BIslam.png)
-![](https://www.theprotik.com/wp-content/uploads/2019/09/PROTIK.jpeg)
+![](https://2.bp.blogspot.com/-_EEnxxpsA4M/XqG6c2izbZI/AAAAAAAAIMk/5roD8u3r2asIO7iepYkKJ-oKQeYy3Q2BACLcBGAsYHQ/s1600/diba.jpg)
+![](https://3.bp.blogspot.com/-V_mN2_fa43k/XqG6mZGAiKI/AAAAAAAAIMo/NAK3onS1TYc7mQhytxff00dApy3pxi-pgCLcBGAsYHQ/s1600/PROTIK.jpeg)
 
 ## Terms and Conditions:
 
